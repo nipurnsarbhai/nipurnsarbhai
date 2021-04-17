@@ -2,5 +2,5 @@
 
 - 🤔 &nbsp; Fourth year undergraduate
 - 🎓 &nbsp; Indian Institute of Technology, Kharagpur
-- ✍️ &nbsp; I like to draw and rescently read finance
+- ✍️ &nbsp; I like to draw and read finance
 - 🤝🏻 &nbsp; Connect with me via sarbhainipurn@gmail.com
